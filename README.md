@@ -1,0 +1,1 @@
+MP1 Opgave lavet af Lars, Lukas, Nicolai og Patrick
