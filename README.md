@@ -1,1 +1,1 @@
-MP1 Opgave lavet af Lars, Lukas, Nicolai og Patrick
+MP Opgaver lavet af Lars, Lukas, Nicolai og Patrick
